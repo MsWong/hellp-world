@@ -1,2 +1,2 @@
 # hellp-world
-this is a tut. ha ha the hame just about says it all
+this is a tut. ha ha the name just about says it all
